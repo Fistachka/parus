@@ -37,6 +37,7 @@ Previous lesson:
 stolbitsa.com/fistachka/bandito<br><br>
 
 
-![2](https://github.com/user-attachments/assets/c324db9e-d88f-4be1-9b44-207be6bfb16c)
-![1](https://github.com/user-attachments/assets/2fd5946d-8145-4560-9bda-2196988a46f2)
+
+![2](https://github.com/user-attachments/assets/c45936cf-e70e-46e4-b7d0-238b91bbebb4)
+![1](https://github.com/user-attachments/assets/cbe60bb4-3102-4264-b458-ec21db7ca71d)
 
