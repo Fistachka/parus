@@ -36,3 +36,7 @@ Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/aacc58da-3562-456d-bf4c-3e7acab111d7 =200x200)
 stolbitsa.com/fistachka/bandito<br><br>
 
+
+![2](https://github.com/user-attachments/assets/c324db9e-d88f-4be1-9b44-207be6bfb16c)
+![1](https://github.com/user-attachments/assets/2fd5946d-8145-4560-9bda-2196988a46f2)
+
