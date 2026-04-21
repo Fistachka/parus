@@ -4,7 +4,7 @@
 ![2](https://github.com/user-attachments/assets/c45936cf-e70e-46e4-b7d0-238b91bbebb4)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/fEGYsEc49Z8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/38_hXzXkZY4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fRCpC8H9TTk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Тихо лужи покрывает лед, помнишь мы с тобою
 Целовались ночи напролет под шум прибоя
@@ -21,7 +21,7 @@ stolbitsa.com/fistachka/bandito2<br><br>
 ![2](https://github.com/user-attachments/assets/c45936cf-e70e-46e4-b7d0-238b91bbebb4)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/nS5IFfeEAt0" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LVZdirPM6SM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yX8TF_wsNB8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Tiho luzhi pokryvaet led, pomnish' my s toboyu
 Celovalis' nochi naprolet pod shum priboya
